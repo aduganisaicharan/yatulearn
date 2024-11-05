@@ -13,7 +13,7 @@
 </p>
 
 <p align="center">
-  <strong>Empowering learners with cutting-edge resources and innovative technology.</strong>
+  <strong>Empowering learners with cutting-edge resources and innovative .</strong>
 </p>
 
 <p align="center">
